@@ -1,4 +1,4 @@
-# Telegram Member Adder
+# Telegram Group Member Adder
 ***
  Just open the file with Python and Use!
 ***
