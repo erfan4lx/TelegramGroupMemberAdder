@@ -19,17 +19,12 @@ Show in YouTube : https://youtu.be/bp8DJUrzOGE
 💢 https://linktr.ee/erfan4lx 💢
 
 ➖➖➖➖➖➖
-***
-Contact me to purchase the special source for Telegram Member Adder for Telgram Channel =>
 
-🌐 Contact me via Email : erfan4lx@gmail.com 🌐
-🌐 Contact me via Telegram : https://telegram.me/erfan4lx 🌐
-***
+🆔My YouTube Channel : http://youtube.com/erfan4lx
 
+🆔My Telegram Channel : https://t.me/Erfan4lxTeam
 
-🆔 Our Website : https://M4nifest0.com
-
-🆔 Our Telegram Channel : https://t.me/M4nifest0
+🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
 <p align="center">
   Follow Me On
