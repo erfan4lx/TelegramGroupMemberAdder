@@ -1,24 +1,11 @@
 # Telegram Group Member Adder
 ***
- Just open the file with Python and Use!
+Get to know the best Tool to Add the Member in the Telegram Group
 ***
 
-Show in YouTube : https://youtu.be/bp8DJUrzOGE
+Show full video on YouTube : https://youtu.be/bp8DJUrzOGE
 
-
-👊 ʍ4ղíƒҽՏԵ0 ϲվҍҽɾ ՏҽϲմɾíԵվ Եҽɑʍ™💪
-
-🔥 ฿Ⱡ₳₵₭ Ⱨ₳₮ Ⱨ₳₵₭ɆⱤ 🔥
-
-➖➖➖➖➖➖
-
-🆔@erfan4lx
-
-➖➖➖➖➖➖
-
-💢 https://linktr.ee/erfan4lx 💢
-
-➖➖➖➖➖➖
+Show demo video on Instagram : https://www.instagram.com/p/CL7TWnMAwzm
 
 🆔My YouTube Channel : http://youtube.com/erfan4lx
 
