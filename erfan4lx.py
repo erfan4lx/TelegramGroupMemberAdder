@@ -1,7 +1,7 @@
 from pyrogram import Client
 import time
 
-app = Client('erfan4lx',1278585,'35e431c13ad73a5acf5912143b873222')
+app = Client('etacobot',1278585,'35e431c13ad73a5acf5912143b873222')
 
 class GroupToGroup_AddMember():
 
