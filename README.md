@@ -9,7 +9,7 @@ Get to know the best Tool to Add the Member in the Telegram Group
 
 Contact with me to get the Password of Zip file on :
 
- Telegram : https://t.me/erfan4lx
+ Telegram : https://t.me/erfan4lx3
   
  Email : erfan4lx@gmail.com
 
@@ -19,7 +19,7 @@ Show demo video on Instagram : https://www.instagram.com/p/CL7kBjUAR80
 
 🆔My YouTube Channel : https://youtube.com/erfan4lx
 
-🆔My Telegram Channel : https://t.me/erfan4lx_channel
+🆔My Telegram Channel : https://t.me/erfan4lx_team
 
 🆔My Instagram Page : https://www.instagram.com/_erfan4lx_/
 
